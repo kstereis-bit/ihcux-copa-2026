@@ -7,7 +7,7 @@
 
 ## Integrantes
 
-- [Seu Nome Aqui]
+- Kate Santana Reis
 
 ---
 
